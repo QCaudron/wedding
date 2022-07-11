@@ -13,11 +13,11 @@ Aim for something [semi-formal](dress_code.png)!
 
 # Events before and after
 
-[Please let us know](https://forms.gle/Bfav9MPNKW43p8mJ8) if you can make it to these events ! We'd love to have you there.
+Please let us know if you can make it to these events [by filling in this quick form](https://forms.gle/Bfav9MPNKW43p8mJ8)! We'd love to have you there.
 
 ### Dinner, Friday September 16th, at 7pm
 
-Please join us for dinner at [Fiasco](https://maps.app.goo.gl/K4VzUQYjb3uMHy8z8), at 7pm, the night before the wedding. Please let us know
+Please join us for dinner at [Fiasco](https://maps.app.goo.gl/K4VzUQYjb3uMHy8z8), at 7pm, the night before the wedding.
 
 ### Brunch, Sunday September 18th, at 11:30am
 
