@@ -1,6 +1,6 @@
 theme: jekyll-theme-slate
 title: Hannah and Quentin's Wedding
 description: Saturday, September 17th, at 7pm (ceremony 7:10pm)
-site_favicon: wedding/favicon.ico
+site_favicon: https://raw.githubusercontent.com/QCaudron/wedding/master/favicon.ico
 github:
   is_project_page: false
