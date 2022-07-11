@@ -5,16 +5,11 @@
 The event itself takes place at [Woodland Park Zoo](https://www.zoo.org/). It's a big place -- come to the [Bear Parking Lot](https://goo.gl/maps/kZCgSavnzkApNWCt9) (here are some [directions from the Zoo people](directions_to_parking.pdf)) and you'll enter [at the Bear Entrance](https://maps.app.goo.gl/8Tae6WihHTc5fsAB8).
 
 <figure>
-  <a href="zoo_guest_map.jpg"><img src="zoo_guest_map.jpg" width="600px" style="border: 2px"></a>
+  <a href="zoo_guest_map.jpg"><img src="zoo_guest_map.jpg" width="600px"></a>
   <figcaption>Click to enlarge</figcaption>
 </figure>
 
-|  |  |
-|---|---|
-| 7pm | The Zoo opens. Please be there a little early because the ceremony starts ten minutes later, so we can catch the last of the light! |
-| 7:10pm | The ceremony begins. |
-| 7:30pm | Cocktails and reception. |
-| 8:30pm | Dinner at the Otter House. |
+The Zoo will let guests in at 7pm. **Please be there a little early because the ceremony starts promptly at 7:10pm, so we can catch the last of the light!** Then, we'll have a cocktail reception, and move to dinner at the Otter House.
 
 
 ### Dinner, Friday September 16th, at 7pm
