@@ -4,7 +4,7 @@ The event itself takes place at [Woodland Park Zoo](https://www.zoo.org/). It's 
 
 <a href="zoo_guest_map.jpg"><img src="zoo_guest_map.jpg" width="600px"></a>
 
-The Zoo will let guests in at 7pm. **Please be there a little early because the ceremony starts promptly at 7:10pm, so we can catch the last of the light!** Then, we'll have a cocktail reception, and move to dinner at the Otter House.
+The Zoo will let guests in at 7pm. Please be there a little early because **the ceremony starts promptly at 7:10pm**, so we can catch the last of the sunlight! Then, we'll have a cocktail reception, and move to dinner at the Otter House.
 
 ### Dress code
 
@@ -35,9 +35,3 @@ From SeaTac Airport, you can take, grab a shuttle, get a taxi, Uber, or Lyft, or
 - An Uber or Lyft will probably cost around $50 to $60. You'll have to head to the [3rd floor of the parking garage to a dedicated pick-up area](https://www.portseattle.org/sea-tac/ground-transportation/app-based-rideshare). After landing, follow signs for "App-based ride share". We usuallydo this as it's the least hassle.
 - The [Premier Airport Shuttle](https://premierairportshuttle.com/reservations/?USERIDENTRY=CMLU20&LOGON=GO) needs to be reserved; it's about $26 per passenger.
 - The Light Rail is the cheapest option and might be the fastest, depending on traffic, but it doesn't go all the way to the hotel. More info [here](https://www.portseattle.org/page/public-transit-link-light-rail). The Light Rail won't get you all the way to the hotel and you'll have to get a bus from University Street station.
-
-
-
-# Things to do in Seattle
-
-
