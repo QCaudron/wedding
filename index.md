@@ -40,3 +40,4 @@ From SeaTac Airport, you can take, grab a shuttle, get a taxi, Uber, or Lyft, or
 
 # Things to do in Seattle
 
+
