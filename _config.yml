@@ -1,5 +1,6 @@
 theme: jekyll-theme-slate
 title: Hannah and Quentin's Wedding
-description: Saturday, September 17th, 2022, at 7pm
+description: Saturday, September 17th, at 7pm (ceremony 7:10pm)
+site_favicon: favicon.ico
 github:
   is_project_page: false
