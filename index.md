@@ -28,6 +28,8 @@ We'd love to have you join us at [Little Water Cantina](https://maps.app.goo.gl/
 
 We booked a block of rooms at the [Courtyard by Marriot Seattle Downtown/Lake Union](https://www.marriott.com/en-us/hotels/seacd-courtyard-seattle-downtown-lake-union/overview/). If you'd like to book a room at our discounted rate, you can [use the online system](https://www.marriott.com/events/start.mi?id=1657728036167&key=GRP) or call them (206-213-0100) and mention it's for the Hannah Heyrich wedding. The room rate comes to about $260 per night. Careful, there are a few other Marriotts in Seattle with similar-sounding names.
 
+The last day to book a room at the discounted price is **August 19th** !
+
 ### Getting to the hotel from the airport
 
 From SeaTac Airport, you can take, grab a shuttle, get a taxi, Uber, or Lyft, or use the Light Rail and other public transit.
