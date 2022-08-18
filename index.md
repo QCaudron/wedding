@@ -4,7 +4,7 @@ The event itself takes place at [Woodland Park Zoo](https://www.zoo.org/). It's 
 
 <a href="zoo_guest_map.jpg"><img src="zoo_guest_map.jpg" width="600px"></a>
 
-The Zoo will let guests in at 7pm. Please be there a little early because **the ceremony starts promptly at 7:10pm**, so we can catch the last of the sunlight! Then, we'll have a cocktail reception, and move to dinner at the Otter House. Total walk from the entrance to the ceremony is about 400m or a quarter of a mile.
+The Zoo will let guests in at 6pm. **The ceremony starts promptly at 6:30pm**, so we can catch the last of the sunlight! Then, we'll have a cocktail reception, and move to dinner at the Otter House. The total walk from the entrance to the ceremony is about 400m or a quarter of a mile.
 
 ### Dress code
 
