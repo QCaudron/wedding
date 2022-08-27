@@ -19,6 +19,10 @@ The Zoo will let guests in at 6pm. **The ceremony starts promptly at 6:30pm**, s
 
 Please stay on our designated trail. Check out the [map above](zoo_guest_map.jpg) -- the solid red line is our trail. If you need to leave the Zoo, you can do so through the same way we entered, and you'll be able to call one of the Zoo folk to let you back in.
 
+Here's a quick video of the trail we'll be on !
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kLCdSK_yyQU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 
 ### Dress code
 
@@ -40,7 +44,7 @@ We'd love to have you join us at [Little Water Cantina](https://maps.app.goo.gl/
 
 # The hotel
 
-We booked a block of rooms at the [Courtyard by Marriot Seattle Downtown/Lake Union](https://www.marriott.com/en-us/hotels/seacd-courtyard-seattle-downtown-lake-union/overview/). Their phone number is 206 213 0100. Careful, there are a few other Marriotts in Seattle with similar-sounding names.
+Most of our guests at the [Courtyard by Marriot Seattle Downtown/Lake Union](https://www.marriott.com/en-us/hotels/seacd-courtyard-seattle-downtown-lake-union/overview/), . Their phone number is 206 213 0100. Careful, there are a few other Marriotts in Seattle with similar-sounding names.
 
 ### Getting to the hotel from the airport
 
