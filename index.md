@@ -44,7 +44,7 @@ We'd love to have you join us at [Little Water Cantina](https://maps.app.goo.gl/
 
 # The hotel
 
-Most of our guests at the [Courtyard by Marriot Seattle Downtown/Lake Union](https://www.marriott.com/en-us/hotels/seacd-courtyard-seattle-downtown-lake-union/overview/), . Their phone number is 206 213 0100. Careful, there are a few other Marriotts in Seattle with similar-sounding names.
+Most of our guests at the [Courtyard by Marriot Seattle Downtown/Lake Union](https://www.marriott.com/en-us/hotels/seacd-courtyard-seattle-downtown-lake-union/overview/). Their phone number is 206 213 0100. Careful, there are a few other Marriotts in Seattle with similar-sounding names.
 
 ### Getting to the hotel from the airport
 
